@@ -1,1 +1,1 @@
-# 3 Stars 1 Sun
+# Three Stars One Sun (3S1S)
